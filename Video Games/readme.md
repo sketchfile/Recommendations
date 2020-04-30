@@ -1,0 +1,1 @@
+Recommendations by system; I will note which version/patches to play if I think its relevant.  If somethings missing it might have had a re-release on another platform, and I recommended it there instead.
