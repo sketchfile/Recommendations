@@ -1,0 +1,1 @@
+Look by nature of NSFW stuff, not everythings gonna appeal to everyone, and Vanilla, sweet stuff is not very common.  If you would be interested in that sort of stuff I would suggest my visual novels section instead.
